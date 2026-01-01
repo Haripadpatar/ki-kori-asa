@@ -4,7 +4,12 @@ fwf
 ev
 re
 
-trwh 
+trwh c
+fd
+sfg
+d
+bsd
+
 hgff yfyuo yt 
 
  iu u  gyyg gu  ygyogg  df  d dffgd
