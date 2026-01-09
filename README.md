@@ -2,7 +2,14 @@ khuewhurew  byyew  ew   iuruq
 sds 
 s df
  sda
+bd g
+fgh
+dh
+fgd
+f
 
+gd
+gf
 
  s saDSer
  t
